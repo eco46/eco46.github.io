@@ -10,6 +10,8 @@ If you have an Android phone and able to cross the Great Firewall or living abro
 [High varietals](2020_0426_01.md)
 
 [A process of elimination](2020_0426_02.md)
+
+[What pandemic?](2020_0426_03.md)
 ### Uploaded in 25.04.2020
 [The Peronist and the pandemic](2020_0425_02.md)
 

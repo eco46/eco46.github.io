@@ -1,6 +1,6 @@
 # _Economist_
 
-*This page sorts out the articles from the magazine _Economist_ reproduced and stored in this responsibility according to the upload date.*
+*This page sorts out the articles from the magazine *Economist* stored in this responsibility according to the upload date.*
 
 If you have an Android phone and able to cross the Great Firewall or living abroad, and would like to help reload articles or point out language faults, please contact me: dannychen46@yahoo.co.jp 
 

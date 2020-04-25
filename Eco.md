@@ -2,7 +2,7 @@
 
 *This page sorts out the articles from the magazine _Economist_ reproduced and stored in this responsibility according to the upload date.*
 
-If you have an Android phone and can cross the Great Firewall(not for breaking the law) or you are living abroad, and would like to help reload articles or point out language faults, please contact me: dannychen46@yahoo.co.jp 
+If you have an Android phone and able to cross the Great Firewall or living abroad, and would like to help reload articles or point out language faults, please contact me: dannychen46@yahoo.co.jp 
 
 <img src="https://cdn.jsdelivr.net/gh/chch455/tuchuang/2020/04/25/6c61cd74dca63bc4db7058c37a8b4d3f.png">
    

@@ -4,4 +4,4 @@
 If you have an Android phone and can cross the Great Firewall(not for breaking the law) or you are living abroad, and would like to help reload articles or discuss English learning, please contact me: dannychen46@yahoo.co.jp 
    
 ### Uploaded in 20200425
-[The Peronist and the pandemic](2020_0425_01)
+[The Peronist and the pandemic](2020_0425_02.md)

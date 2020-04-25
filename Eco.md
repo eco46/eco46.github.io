@@ -1,4 +1,5 @@
-# Passages from _Economist_
+# Passages from 
+# _Economist_
 
 ## This page sorts out the articles reproduced and stored in this responsibility according to the upload date.
 If you have an Android phone and can cross the Great Firewall(not for breaking the law) or you are living abroad, and would like to help reload articles or discuss English learning, please contact me: dannychen46@yahoo.co.jp 

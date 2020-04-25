@@ -1,11 +1,11 @@
 This text serves as the test of English reading ability in the entrance examination of China's universities ("Gaokao").
 
-Please infer what is " _a plain language suitable for high school students to read_ " from this text.
+Please infer what is "_a plain language suitable for high school students to read_" from this text.
 
 
 这是一篇中国大陆高考的英语阅读能力测验试题。
 
-您可以据此推断什么是“ _适合高中生阅读的平实语言_ ”。
+您可以据此推断什么是“_适合高中生阅读的平实语言_ ”。
 
 Although the top men in smuggling（走私）business must work together, most of a syndicate’s（集团）small fry, especially the mules, know only their immediate contacts. If caught there is little they can give away. A mule probably will not even know the name of the person who gives him his instructions, nor how to get in touch with him. Usually he even does not know the person to whom he has to make delivery. He will be told just to sit tight in a certain hotel or bar until someone contacts him. In this way if he is blown, coming through airport customs he cannot unwittingly lead agents to the next link in the chain. All the persons at the receiving end do is to hang around the airport among the waiting crowd, and see that the mule comes through safely. If he does not, he is dimply written off（报废；注销）as a loss. To make identification of mules easier, several syndicates have devised their own “club ties” so that a mule wearing one can immediately be picked out.
 

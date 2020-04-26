@@ -1,6 +1,6 @@
-# _Economist_
+# _The Economist_
 
-*This page sorts out the articles from the magazine _Economist_ stored in this responsibility according to the upload date.*
+*This page sorts out the articles from the magazine _The Economist_ stored in this responsibility according to the upload date.*
 
 If you have an Android phone and would like to help reload articles or point out language faults, please contact: eco46en@yahoo.co.jp 
 

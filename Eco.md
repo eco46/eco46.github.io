@@ -4,7 +4,9 @@
 
 *If you have an Android phone and would like to help reload articles or point out language faults, please contact: eco46en@yahoo.co.jp*
 
-<img src="https://cdn.jsdelivr.net/gh/chch455/tuchuang/2020/04/25/6c61cd74dca63bc4db7058c37a8b4d3f.png">
+[<img src="https://resource.buyee.jp/store/default/nogizaka46shop/banner_nogizaka46shop2_1056x248_4l.jpg">](https://shop.buyee.jp/nogizaka46shop)
+
+This is an ad.
    
 ### 04.2020
 [Mercury rising](2020_0426_05.md)
@@ -25,3 +27,4 @@
 
 [The Peronist and the pandemic](2020_0425_02.md)
 
+<img src="https://cdn.jsdelivr.net/gh/chch455/tuchuang/2020/04/25/6c61cd74dca63bc4db7058c37a8b4d3f.png">

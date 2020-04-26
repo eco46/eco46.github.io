@@ -15,4 +15,6 @@ For docs stored in _clouddisks_ (Google Drive, Baidu NetDisk, CtFile, Lanzou, et
 If you have an Android phone and can cross the Great Firewall(not for breaking the law) or you are living abroad, and would like to help reload articles or discuss English learning, please contact me: eco46en@yahoo.co.jp 
 
 ## Ad
-Buy latest Nogizaka Goods [Here]!(https://www.nogizaka46shop.com/)
+[<img src="https://kinnosuke-images.buyee.jp/banner_images/84/b2d82510e9810fee2ce2cc8cc3ff0d58?w=970">]
+Buy latest Nogizaka Goods Here!(https://www.nogizaka46shop.com/)
+Get latest information about Nogizaka46 Here!(https://www.nogizaka46.com/)

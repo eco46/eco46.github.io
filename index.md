@@ -19,10 +19,7 @@ If you have an Android phone and can cross the Great Firewall(not for breaking t
 
 [<img src="https://resource.buyee.jp/store/default/nogizaka46shop/banner_nogizaka46shop2_1056x248_4l.jpg">](https://shop.buyee.jp/nogizaka46shop)
 
-[<img src="https://www.nogizaka46-cn.com/images/official-jp-site.jpg">](https://www.nogizaka46.com/)
-
-
-[<img src="https://www.nogizaka46-cn.com/images/logo.png?2">](https://www.nogizaka46-cn.com/)
+[<img src="https://www.nogizaka46-cn.com/images/official-jp-site.jpg">](https://www.nogizaka46.com/)[<img src="https://www.nogizaka46-cn.com/images/logo.png?2">](https://www.nogizaka46-cn.com/)
 
 Watch Syncronicity with _30m view_
 

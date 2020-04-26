@@ -26,8 +26,6 @@ If you have an Android phone and can cross the Great Firewall(not for breaking t
 
 Watch Syncronicity with _30m view_
 
-<img src="https://y.gtimg.cn/music/photo_new/T002R300x300M000001hAqUU2Vhr7W_1.jpg?max_age=2592000">
-
 [Tensent Music](https://y.qq.com/n/yqq/album/000JiKID1whzlb.html)
 
 [YouTube(Chinese Sub.)](https://www.youtube.com/watch?v=aW4pz36TMmg)

@@ -16,8 +16,10 @@ If you have an Android phone and can cross the Great Firewall(not for breaking t
 
 ## Ad
 [<img src="https://kinnosuke-images.buyee.jp/banner_images/84/b2d82510e9810fee2ce2cc8cc3ff0d58?w=970">](https://www.nogizaka46shop.com/)
-Buy latest Nogizaka Goods Here!(https://www.nogizaka46shop.com/)
+[Buy the latest Nogizaka Goods Here!](https://www.nogizaka46shop.com/)(https://www.nogizaka46shop.com/)
 
-[Get latest information about Nogizaka46 Here!](https://www.nogizaka46.com/)
+[Get the latest information about Nogizaka46 Here!](https://www.nogizaka46.com/)(https://www.nogizaka46.com/)
+
 [<img src="https://y.gtimg.cn/music/photo_new/T002R300x300M000001R46U04OmTg1_2.jpg">](https://y.qq.com/n/yqq/album/001R46U04OmTg1.html)
+
 [Nogizaka46's music on Tensent Music](https://y.qq.com/n/yqq/singer/003caGxv3AblUU.html)

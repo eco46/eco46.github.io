@@ -23,12 +23,8 @@ If you have an Android phone and can cross the Great Firewall(not for breaking t
 
 Watch Syncronicity with _30m view_
 
-[Tensent Music](https://y.qq.com/n/yqq/album/000JiKID1whzlb.html)
+[Tensent Music](https://y.qq.com/n/yqq/album/000JiKID1whzlb.html)       [YouTube(Chinese Sub.)](https://www.youtube.com/watch?v=aW4pz36TMmg)
 
-[YouTube(Chinese Sub.)](https://www.youtube.com/watch?v=aW4pz36TMmg)
-
-[YouTube(Original)](https://www.youtube.com/watch?v=f0wbnQw89J0)
-
-[Audio](https://nogizaka46.lnk.to/20thSGYo)
+[YouTube(Original)](https://www.youtube.com/watch?v=f0wbnQw89J0)       [Audio](https://nogizaka46.lnk.to/20thSGYo)
 
 

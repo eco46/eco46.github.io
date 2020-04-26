@@ -25,7 +25,7 @@ Email: eco46en@yahoo.co.jp
 
 J-pop idol music with flamenco elements
 
-[Tensent Music](https://y.qq.com/n/yqq/album/000JiKID1whzlb.html)
+[Tencent Music](https://y.qq.com/n/yqq/album/000JiKID1whzlb.html)
 
 [YouTube(Chinese Sub.)](https://www.youtube.com/watch?v=aW4pz36TMmg)
 

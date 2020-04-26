@@ -31,7 +31,9 @@ If you have an Android phone and can cross the Great Firewall(not for breaking t
 
 [乃木坂46中国会员站](https://www.nogizaka46-cn.com/)
 
-Watch *Syncronicity*  with 30m view
+_Watch *Syncronicity*  with 30m view_
+
+[<img src="https://y.gtimg.cn/music/photo_new/T002R300x300M000001hAqUU2Vhr7W_1.jpg?max_age=2592000">]
 
 [Tensent Music](https://y.qq.com/n/yqq/album/000JiKID1whzlb.html)
 
@@ -41,4 +43,4 @@ Watch *Syncronicity*  with 30m view
 
 [Audio](https://nogizaka46.lnk.to/20thSGYo)
 
-[<img src="https://y.gtimg.cn/music/photo_new/T002R300x300M000001R46U04OmTg1_2.jpg">](https://y.qq.com/n/yqq/album/001R46U04OmTg1.html)
+

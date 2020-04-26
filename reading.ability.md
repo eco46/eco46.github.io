@@ -1,9 +1,9 @@
-This text serves as the test of English reading ability in the entrance examination of China's universities ("Gaokao").
+This text serves as the test of English reading ability in the college entrance examination of China ("Gaokao").
 
 Please infer what is "_a plain language suitable for high school students to read_" from this text.
 
 
-这是一篇中国大陆高考的英语阅读能力测验试题。
+这是一篇中国大陆“高考”的英语阅读能力测验试题。
 
 您可以据此推断什么是“_适合高中生阅读的平实语言_ ”。
 

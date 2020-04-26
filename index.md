@@ -17,17 +17,15 @@ If you have an Android phone and can cross the Great Firewall(not for breaking t
 ## Ads
 [<img src="https://kinnosuke-images.buyee.jp/banner_images/84/b2d82510e9810fee2ce2cc8cc3ff0d58?w=970">](https://www.nogizaka46shop.com/)
 
-[Buy the latest Nogizaka Goods Here!](https://www.nogizaka46shop.com/)(https://www.nogizaka46shop.com/)
+[Latest Nogizaka Goods Here!](https://www.nogizaka46shop.com/)
 
 [<img src="https://resource.buyee.jp/store/default/nogizaka46shop/banner_nogizaka46shop2_1056x248_4l.jpg">](https://shop.buyee.jp/nogizaka46shop)
 
-(https://shop.buyee.jp/nogizaka46shop)
-
-[Webshop for oversea users](https://shop.buyee.jp/nogizaka46shop)(https://shop.buyee.jp/nogizaka46shop)
+[Webshop for oversea users](https://shop.buyee.jp/nogizaka46shop)
 
 [<img src="https://www.nogizaka46-cn.com/images/official-jp-site.jpg">](https://www.nogizaka46.com/)
 
-[Get the latest information about Nogizaka46 Here!](https://www.nogizaka46.com/)(https://www.nogizaka46.com/)
+[Get the latest information about Nogizaka46 Here!](https://www.nogizaka46.com/)
 
 [<img src="https://www.nogizaka46-cn.com/images/logo.png?2">](https://www.nogizaka46-cn.com/)
 

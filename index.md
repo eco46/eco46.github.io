@@ -9,7 +9,7 @@ We have stored some articles for you to read
 For example, [Articles from the Economist](Eco.md)
 
 ## Contact
-If you have an Android phone and would like to help collect, update articles or translate titles, please contact: 
+If you have an available device and would like to help collect, update articles or translate titles, please contact: 
 
 Email: eco46en@yahoo.co.jp
 

@@ -1,36 +1,18 @@
-# *ECO46*
+# eco46.github.io
 
-## [README(简体中文)](spch.md)
+## 浏览须知
 
-[<img src="https://cdn.jsdelivr.net/gh/chch455/tuchuang/2020/04/25/b94fb501e39b4b44ceadb77ecc02fe04.png">](https://www.nogizaka46shop.com/)
-## What's this?
-We have stored some articles for you to read
+本站仅为没有经济能力订阅相关期刊的英语学习者提供阅读材料收集的帮助，*而非服务* ；如果您不是学生或有订阅的经济能力，请不要阅读本站文章并向期刊出版商订购。
 
-For example, [Articles from the Economist](Eco.md)
+如果您是期刊的订户，或您有Android设备和无封锁的网络环境，并且愿意搭把手收集文章；或您愿意成为志愿者将文章改写成[适合高中生阅读的平实语言](reading.ability.md)（可能相当于雅思考试4.5或5分），请与我们联系: eco46en@yahoo.co.jp _这不需要编程知识_
 
-## Contact
-If you have an available device and would like to help collect, update articles or translate titles, please contact: 
+本站相关期刊在中国大陆均有纸质或数字版本出版发行，您的转载可能违反中国大陆相关法律，也可能侵犯他人知识产权。無断転載、再配信等は一切お断りします。Unauthorized reproduction prohibited.
 
-Email: eco46en@yahoo.co.jp
+欢迎指出网页中文章以外的地方出现的语法错误。
 
-[Discord: https://discord.gg/ETKUC9v](https://discord.gg/ETKUC9v)
+## 侵删
+如我们收集的文章侵犯了您的著作权或版权，*请及时与我们联系(eco46en@yahoo.co.jp)，我们会立即删除相应文章*，避免您的进一步损失和复杂的诉讼。
 
-[Telegram: https://t.me/eco46](https://t.me/eco46)
-## Ads
-[<img src="https://kinnosuke-images.buyee.jp/banner_images/84/b2d82510e9810fee2ce2cc8cc3ff0d58?w=970">](https://www.nogizaka46shop.com/)
+## 本站仅有这个中文页面，请返回[主页](index.md)
 
-[<img src="https://resource.buyee.jp/store/default/nogizaka46shop/banner_nogizaka46shop2_1056x248_4l.jpg">](https://shop.buyee.jp/nogizaka46shop)
-
-[<img src="https://www.nogizaka46-cn.com/images/official-jp-site.jpg">](https://www.nogizaka46.com/)[<img src="https://www.nogizaka46-cn.com/images/logo.png?2">](https://www.nogizaka46-cn.com/)
-
-J-pop idol music with flamenco elements
-
-[Tencent Music](https://y.qq.com/n/yqq/album/000JiKID1whzlb.html)
-
-[YouTube(Chinese Sub.)](https://www.youtube.com/watch?v=aW4pz36TMmg)
-
-[YouTube(Original)](https://www.youtube.com/watch?v=f0wbnQw89J0)
-
-[Audio](https://nogizaka46.lnk.to/20thSGYo)
-
-
+<img src="https://cdn.jsdelivr.net/gh/chch455/tuchuang/2020/04/25/b94fb501e39b4b44ceadb77ecc02fe04.png">

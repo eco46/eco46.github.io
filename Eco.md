@@ -1,9 +1,5 @@
 # _The Economist_
 
-*This page sorts out the articles from the magazine The Economist stored in this responsibility according to the upload date.*
-
-*If you have an Android phone and would like to help reload articles or point out language faults, please contact: eco46en@yahoo.co.jp*
-
 [<img src="https://resource.buyee.jp/store/default/nogizaka46shop/banner_nogizaka46shop2_1056x248_4l.jpg">](https://shop.buyee.jp/nogizaka46shop)
 
 This is an ad.
